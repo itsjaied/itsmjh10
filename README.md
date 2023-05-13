@@ -1,5 +1,5 @@
 
-### Hi I'm Jaied 👋 
+### Hi, I'm Jaied 👋 
 #### I am a Web Developer
 
 I want to be a Web developer. Still I am in my beginner stage, who is practicing to learn different coding languages and improving other skills, in hope that I will give my clients 100% of my potential. As I am a hard worker, so I know my dream will become true one day inshallah..
